@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **inderiassamson22@gmail.com**
 
-- ⚡ Fun fact **I Like Watching Tv-Shows/Movies**
+- ⚡ Fun fact **I Love Watching Tv-Shows/Movies**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
